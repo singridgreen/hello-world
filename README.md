@@ -1,4 +1,4 @@
-# hello-world
-My first try!
-###What's up world?!  
-######I'm Susan and I prefer traffic circles over stop signs and traffic lights.  
+###**Susan I. Green**  
+
+####**414 E. Fairview Avenue, Ambler, PA 19002 • 215-260-6980 • singridgreen@gmail.com**  
+
