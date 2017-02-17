@@ -19,7 +19,7 @@ Woods Hole, MA
 September-December 2008  
   
 ###Experience  
-**Care Taker,** The Arc of Chester County, _Blue Bell, PA_ (December 2014-Present)      
+* **Care Taker,** The Arc of Chester County, _Blue Bell, PA_ (December 2014-Present)      
   *	Work one-on-one with adult with autism to develop social, cognitive, and motor skills.  
   *	Plan activities and outings for adult with autism.  
   * Provide respite care for parents and family.  
