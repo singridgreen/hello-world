@@ -20,51 +20,42 @@ Woods Hole, MA
 September-December 2008  
 ---  
 ###Experience  
- **The Arc of Chester County,** _Care Taker_      
- Blue Bell, PA   
- December 2014-Present        
+**Care Taker,** December 2014-Present    
+ The Arc of Chester County, Blue Bell, PA                  
   *	Work one-on-one with adult with autism to develop social, cognitive, and motor skills.  
   *	Plan activities and outings for adult with autism.  
   * Provide respite care for parents and family.  
   
-**Alaskan Observers, Inc.,**     
-_Observer_  
-Kodiak, AK  
-June 2014-October 2014  
+**Observer,** June 2014-October 2014     
+Alaskan Observers, Inc., Kodiak, AK          
   * Sampled scallop catch to collect essential biological and fishery-based data.  
   * Observed vessel noncompliance with fishery regulations.
   * Monitored scallop offloads.  
     
-**Cantina Feliz Mexican Restaurant**  
-_Server_  
-Fort Washington, PA  
-January 2011-October 2013  
+**Server,** January 2011-October 2013     
+Cantina Feliz Mexican Restaurant, Fort Washington, PA  
   *	Received and served customer orders.  
   * Worked in a team setting to ensure food was presented properly and of the finest quality.  
   * Answered all guest questions and handled customer complaints.  
     
-**Ambler YMCA**  
-_Lifeguard and Swim Instructor_  
-Ambler, PA  
-September 2010-September 2012  
+**Lifeguard and Swim Instructor,** September 2010-September 2012  
+Ambler YMCA, Ambler, PA     
   * Instructed patrons on rules and regulations of aquatic facility.  
   * Monitored pool area for violations and potential hazardous situations.  
   * Instructed swim lessons.  
     
-**Kelly Tarlton's Antartic Encounter and Underwater World**  
-_Tank Attendant Intern_  
-Auckland, New Zealand  
-March-June 2009  
+**Tank Attendant Intern,** March-June 2009    
+Kelly Tarlton's Antartic Encounter and Underwater World, Auckland, New Zealand  
   * Performed daily talks informing the public about the various animals living at the aquarium.  
   * Prepared food and fed fish and other aquatic life according to schedule.  
   * Monitored tank water to maintain specified water conditions.  
-    
+  ---  
 ###Activities  
   * _Volunteer at Pennypack Farm and Education Center_  
   * _Volunteer at KeystoneCare Hospice_  
   * _Captain of the Boston University Ultimate Frisbee Team_  
   * _Sailing at Boston University_  
-    
+---  
 ###Interests  
   * Hiking, traveling, cooking, swimming, biking, film making, square dancing, photography  
    
