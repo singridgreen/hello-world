@@ -3,10 +3,12 @@
 ---  
 ####**EDUCATION**  
 >**Boston University College of Arts and Sciences**    
->Bachelor of Arts in Marine Science  
->Minor in Visual Arts  
+>_Bachelor of Arts in Marine Science_    
+>_Minor in Visual Arts_  
 >Boston, MA  
 >May 2010 GPA:3.39/4.0  
+  
+**Auckland Internship Program**
 
 * Worked one on one.
 * Hey hey hey
