@@ -15,9 +15,9 @@ May 2010 GPA:3.39/4.0
 Auckland, New Zealand  
 January-June 2009  
   
-**Boston University Marine Program with Sea Education Assosication,** _Studies in Tropical Oceanography_     
-Woods Hole, MA    
-September-December 2008  
+**Boston University Marine Program with Sea Education Assosication,** _Studies in Tropical Oceanography_  
+Woods Hole, MA  
+September-December 2008   
 ---  
 ###Experience  
 **Care Taker,** December 2014-Present    
@@ -54,7 +54,7 @@ Kelly Tarlton's Antartic Encounter and Underwater World, Auckland, New Zealand
   * _Volunteer at Pennypack Farm and Education Center_  
   * _Volunteer at KeystoneCare Hospice_  
   * _Captain of the Boston University Ultimate Frisbee Team_  
-  * _Sailing at Boston University_  
+  * _Sailing at Boston University_   
 ---  
 ###Interests  
   * Hiking, traveling, cooking, swimming, biking, film making, square dancing, photography  
