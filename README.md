@@ -24,10 +24,8 @@ September-December 2008
   *	Plan activities and outings for adult with autism.  
   * Provide respite care for parents and family.  
   
-**Alaskan Observers, Inc.**  
-_Observer_  
-Kodiak, AK  
-June 2014-October 2014  
+**Alaskan Observers, Inc.,** Kodiak, AK (June 2014-October 2014)   
+_Observer_    
   * Sampled scallop catch to collect essential biological and fishery-based data.  
   * Observed vessel noncompliance with fishery regulations.
   * Monitored scallop offloads.  
