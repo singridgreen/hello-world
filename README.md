@@ -13,4 +13,5 @@
 * straight glazin'
 
 <center>Please be centered</center>
+<p style="text-align: center;">please be centered</p>  
 
