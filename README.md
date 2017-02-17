@@ -2,9 +2,7 @@
 ####414 E. Fairview Avenue, Ambler, PA 19002 • 215-260-6980 • singridgreen@<i></i>gmail.com  
 ---  
 ###EDUCATION  
-**Boston University College of Arts and Sciences**    
-_Bachelor of Arts in Marine Science_    
-_Minor in Visual Arts_  
+**Boston University College of Arts and Sciences**, _Bachelor of Arts in Marine Science, Minor in Visual Arts_        
 Boston, MA  
 May 2010 GPA:3.39/4.0  
   
