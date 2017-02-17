@@ -49,13 +49,13 @@ Kelly Tarlton's Antartic Encounter and Underwater World, Auckland, New Zealand
   * Performed daily talks informing the public about the various animals living at the aquarium.  
   * Prepared food and fed fish and other aquatic life according to schedule.  
   * Monitored tank water to maintain specified water conditions.  
-  ---  
+    ---    
 ###Activities  
   * _Volunteer at Pennypack Farm and Education Center_  
   * _Volunteer at KeystoneCare Hospice_  
   * _Captain of the Boston University Ultimate Frisbee Team_  
   * _Sailing at Boston University_  
----  
+  ---  
 ###Interests  
   * Hiking, traveling, cooking, swimming, biking, film making, square dancing, photography  
    
