@@ -1,24 +1,24 @@
 ##Susan I. Green  
 ####414 E. Fairview Avenue, Ambler, PA 19002 • 215-260-6980 • singridgreen@<i></i>gmail.com  
 ---  
-####EDUCATION  
+###EDUCATION  
 **Boston University College of Arts and Sciences**    
->_Bachelor of Arts in Marine Science_    
->_Minor in Visual Arts_  
->Boston, MA  
->May 2010 GPA:3.39/4.0  
+_Bachelor of Arts in Marine Science_    
+_Minor in Visual Arts_  
+Boston, MA  
+May 2010 GPA:3.39/4.0  
   
 **Auckland Internship Program**  
->_Studies in International Organizations_  
->Auckland, New Zealand  
->January-June 2009  
+_Studies in International Organizations_  
+Auckland, New Zealand  
+January-June 2009  
   
 **Boston University Marine Program with Sea Education Assosication**  
->_Studies in Tropical Oceanography_  
->Woods Hole, MA  
->September-December 2008  
+_Studies in Tropical Oceanography_  
+Woods Hole, MA  
+September-December 2008  
   
-####EXPERIENCE  
+###EXPERIENCE  
 **The Arc of Chester County**  
 _Care Taker_  
 Blue Bell, PA December  
@@ -58,13 +58,13 @@ March-June 2009
   * Prepared food and fed fish and other aquatic life according to schedule.  
   * Monitored tank water to maintain specified water conditions.  
     
-####ACTIVITIES
+###ACTIVITIES
   * _Volunteer at Pennypack Farm and Education Center_  
   * _Volunteer at KeystoneCare Hospice_  
   * _Captain of the Boston University Ultimate Frisbee Team_  
   * _Sailing at Boston University_  
     
-####INTERESTS  
+###INTERESTS  
   * Hiking, traveling, cooking, swimming, biking, film making, square dancing, photography  
    
 
