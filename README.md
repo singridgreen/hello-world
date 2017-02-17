@@ -8,7 +8,18 @@
 >Boston, MA  
 >May 2010 GPA:3.39/4.0  
   
-**Auckland Internship Program**
+>**Auckland Internship Program**  
+>_Studies in International Organizations_  
+>Auckland, New Zealand  
+>January-June 2009  
+  
+>**Boston University Marine Program with Sea Education Assosication**  
+>_Studies in Tropical Oceanography_  
+>Woods Hole, MA  
+>September-December 2008  
+  
+####EXPERIENCE    
+
 
 * Worked one on one.
 * Hey hey hey
