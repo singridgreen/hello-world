@@ -25,6 +25,7 @@ Blue Bell, PA December
 2014-Present  
   *	Work one-on-one with adult with autism to develop social, cognitive, and motor skills.  
   *	Plan activities and outings for adult with autism.  
+  * Provide respite care for parents and family.  
   
 **Alaskan Observers, Inc.**  
 _Observer_  
