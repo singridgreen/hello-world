@@ -19,13 +19,18 @@ Woods Hole, MA
 September-December 2008  
   
 ###Experience  
-* **Care Taker,** The Arc of Chester County, _Blue Bell, PA_ (December 2014-Present)      
+ **The Arc of Chester County**  
+ _Care Taker_   
+ Blue Bell, PA   
+ December 2014-Present        
   *	Work one-on-one with adult with autism to develop social, cognitive, and motor skills.  
   *	Plan activities and outings for adult with autism.  
   * Provide respite care for parents and family.  
   
-**Alaskan Observers, Inc.,** Kodiak, AK (June 2014-October 2014)   
-_Observer_    
+**Alaskan Observers, Inc.,**     
+_Observer_  
+Kodiak, AK  
+June 2014-October 2014  
   * Sampled scallop catch to collect essential biological and fishery-based data.  
   * Observed vessel noncompliance with fishery regulations.
   * Monitored scallop offloads.  
