@@ -20,40 +20,40 @@
   
 ####EXPERIENCE  
 **The Arc of Chester County**  
->_Care Taker_  
->Blue Bell, PA December  
->2014-Present  
+_Care Taker_  
+Blue Bell, PA December  
+2014-Present  
   *	Work one-on-one with adult with autism to develop social, cognitive, and motor skills.  
   *	Plan activities and outings for adult with autism.  
   
 **Alaskan Observers, Inc.**  
->_Observer_  
->Kodiak, AK  
->June 2014-October 2014  
+_Observer_  
+Kodiak, AK  
+June 2014-October 2014  
   * Sampled scallop catch to collect essential biological and fishery-based data.  
   * Observed vessel noncompliance with fishery regulations.
   * Monitored scallop offloads.  
     
 **Cantina Feliz Mexican Restaurant**  
->_Server_  
->Fort Washington, PA  
->January 2011-October 2013  
+_Server_  
+Fort Washington, PA  
+January 2011-October 2013  
   *	Received and served customer orders.  
   * Worked in a team setting to ensure food was presented properly and of the finest quality.  
   * Answered all guest questions and handled customer complaints.  
     
 **Ambler YMCA**
->_Lifeguard and Swim Instructor_  
->Ambler, PA  
->September 2010-September 2012  
+_Lifeguard and Swim Instructor_  
+Ambler, PA  
+September 2010-September 2012  
   * Instructed patrons on rules and regulations of aquatic facility.  
   * Monitored pool area for violations and potential hazardous situations.  
   * Instructed swim lessons.  
     
 **Kelly Tarlton's Antartic Encounter and Underwater World**  
->_Tank Attendant Intern_  
->Auckland, New Zealand  
->March-June 2009  
+_Tank Attendant Intern_  
+Auckland, New Zealand  
+March-June 2009  
   * Performed daily talks informing the public about the various animals living at the aquarium.  
   * Prepared food and fed fish and other aquatic life according to schedule.  
   * Monitored tank water to maintain specified water conditions.  
