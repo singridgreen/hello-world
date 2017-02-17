@@ -16,7 +16,7 @@ Auckland, New Zealand
 January-June 2009  
   
 **Boston University Marine Program with Sea Education Assosication,** _Studies in Tropical Oceanography_     
-Woods Hole, MA  
+Woods Hole, MA    
 September-December 2008  
 ---  
 ###Experience  
