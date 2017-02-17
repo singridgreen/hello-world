@@ -1,5 +1,8 @@
 ##Susan I. Green  
-####414 E. Fairview Avenue, Ambler, PA 19002 • 215-260-6980 • singridgreen@<i></i>gmail.com  
+####Phone: 215-260-6980  
+####Address: 414 E. Fairview Avenue, Ambler, PA 19002  
+####Email: singridgreen@<i></i>gmail.com  
+####GitHub: http://github.com/singridgreen  
 ---  
 ###Education  
 **Boston University College of Arts and Sciences**   
