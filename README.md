@@ -12,4 +12,5 @@
 * played at dunkin donuts
 * straight glazin'
 
-<button class="button-save large">Big Fat Button</button>
+<center>Please be centered</center>
+
