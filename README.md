@@ -42,7 +42,7 @@ January 2011-October 2013
   * Worked in a team setting to ensure food was presented properly and of the finest quality.  
   * Answered all guest questions and handled customer complaints.  
     
-**Ambler YMCA**
+**Ambler YMCA**  
 _Lifeguard and Swim Instructor_  
 Ambler, PA  
 September 2010-September 2012  
@@ -67,23 +67,4 @@ March-June 2009
 ###INTERESTS  
   * Hiking, traveling, cooking, swimming, biking, film making, square dancing, photography  
    
-
-  
-
-
-
-  
-
-
-* Worked one on one.
-* Hey hey hey
-* played at dunkin donuts
-* straight glazin'
-
-<center>Please be centered</center>
-<p style="text-align: center;">please be centered</p>  
-http://<span></span>example.com
-
-
-singridgreen@<i></i>gmail.com
 
