@@ -1,11 +1,12 @@
 ###**Susan I. Green**  
-
-####**414 E. Fairview Avenue, Ambler, PA 19002 • 215-260-6980 • singridgreen@gmail.com**  
+####**414 E. Fairview Avenue, Ambler, PA 19002 • 215-260-6980 • singridgreen@<i></i>gmail.com**  
 ---  
-***
-
 ####**EDUCATION**  
-**Boston University College of Arts and Sciences**Boston, MA
+>**Boston University College of Arts and Sciences**    
+>Bachelor of Arts in Marine Science  
+>Minor in Visual Arts  
+>Boston, MA  
+>May 2010 GPA:3.39/4.0  
 
 * Worked one on one.
 * Hey hey hey
