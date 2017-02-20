@@ -7,17 +7,17 @@ Github: https://github.com/singridgreen
  
 ---  
 ###Education  
-**Boston University College of Arts and Sciences**,   
+**Boston University College of Arts and Sciences**   
 _Bachelor of Arts in Marine Science, Minor in Visual Arts_           
 Boston, MA  
-May 2010 GPA:3.39/4.0  
+May 2010, GPA:3.39/4.0  
   
-**Auckland Internship Program,**  
+**Auckland Internship Program**  
 _Studies in International Organizations_     
 Auckland, New Zealand  
 January-June 2009  
   
-**Boston University Marine Program with Sea Education Assosication,**  
+**Boston University Marine Program with Sea Education Assosication**  
 _Studies in Tropical Oceanography_  
 Woods Hole, MA  
 September-December 2008  
