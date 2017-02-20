@@ -66,7 +66,7 @@ March-June 2009
   * _Volunteer at Pennypack Farm and Education Center_  
   * _Volunteer at KeystoneCare Hospice_  
   * _Captain of the Boston University Ultimate Frisbee Team_
-  * _Sailing at Boston University  
+  * _Sailing at Boston University_  
     
 ---    
 ###Interests  
