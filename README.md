@@ -50,7 +50,7 @@ January 2011-October 2013
     
 **Ambler YMCA**  
 _Lifeguard and Swim Instructor_   
-Ambler, PA
+Ambler, PA  
 September 2010-September 2012       
   * Instructed patrons on rules and regulations of aquatic facility.  
   * Monitored pool area for violations and potential hazardous situations.  
