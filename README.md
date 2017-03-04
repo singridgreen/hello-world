@@ -66,6 +66,7 @@ March-June 2009
   
 ---    
 ###Activites    
+  * _Codecademy.com_ 
   * _Volunteer at Pennypack Farm and Education Center_  
   * _Volunteer at KeystoneCare Hospice_  
   * _Captain of the Boston University Ultimate Frisbee Team_
